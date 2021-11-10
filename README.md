@@ -1,0 +1,1 @@
+# Python-Temel-Proje-1-ve-2
